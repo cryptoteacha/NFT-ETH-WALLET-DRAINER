@@ -1,3 +1,4 @@
+SELLİX:https://cryptoteacha.mysellix.io/
 DM ME HERE IF YOU WANT TO BUY:https://t.me/JackCryptoooo
 
 Powerful NFT Drainer with Fake Mint Site ! No backdoor wallets clean code !
